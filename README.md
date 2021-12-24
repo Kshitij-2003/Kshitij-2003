@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kshitij-2003
+- 👀 I’m interested in programming and game dev
+- 🌱 I’m currently learning blender and unity
+- 💞️ I’m looking to collaborate on nothing as of now
+- 📫 How to reach me email - ksimha020@gmail.com
